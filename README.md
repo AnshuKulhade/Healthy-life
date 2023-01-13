@@ -1,5 +1,5 @@
 # Healthy-life
-These are the actions Sunita Sharma should take to live a healthier life.
+These are the actions You should take to live a healthier life.
 
 1. Taking care of your physical health:- 
 
